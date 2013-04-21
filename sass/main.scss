@@ -202,6 +202,10 @@ main {
     padding-top: 13em;
 }
 
+#{headings(2,5)} {
+    color: #999;
+}
+
 a {
     color: $primary;
     &:hover {
