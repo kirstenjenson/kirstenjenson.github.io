@@ -210,6 +210,25 @@ a {
     }
 }
 
+.gallery {
+    @extend .clearfix;
+
+    margin: 0;
+    padding: 0;
+    list-style: none;
+
+    li {
+        float: left;
+        margin: 0.2em;
+        padding: 0;
+    }
+
+    img {
+        width: 100px;
+        height: 100px;
+    }
+}
+
 @media all and (max-width: 800px) {
     header, footer, main {
         position: relative;
