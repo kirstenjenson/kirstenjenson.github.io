@@ -135,6 +135,7 @@ header > h1 a {
 
 nav {
     margin: 2em auto;
+    font-size: 120%;
 
     ul {
         margin: 0;
@@ -150,7 +151,7 @@ nav {
         color: white;
         text-decoration: none;
         &:hover {
-            color: #222;
+            color: #ccc;
         }
     }
 }
