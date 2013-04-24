@@ -2,32 +2,32 @@
 layout: default
 title: Gallery
 images:
-    - !str 000
-    - !str 001
-    - !str 002
-    - !str 003
-    - !str 004
-    - !str 005
-    - !str 006
-    - !str 007
-    - !str 008
-    - !str 009
-    - !str 010
-    - !str 011
-    - !str 012
-    - !str 013
-    - !str 014
-    - !str 015
-    - !str 016
-    - !str 017
-    - !str 018
-    - !str 019
-    - !str 020
-    - !str 021
-    - !str 022
-    - !str 023
-    - !str 024
-    - !str 025
+    - g000
+    - g001
+    - g002
+    - g003
+    - g004
+    - g005
+    - g006
+    - g007
+    - g008
+    - g009
+    - g010
+    - g011
+    - g012
+    - g013
+    - g014
+    - g015
+    - g016
+    - g017
+    - g018
+    - g019
+    - g020
+    - g021
+    - g022
+    - g023
+    - g024
+    - g025
 ---
 <ul class="gallery">
 {% for image in page.images %}
