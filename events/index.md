@@ -1,7 +1,10 @@
 ---
+published: true
 layout: default
 title: Events
+
 ---
+
 ## Thursday 2 May  
 
 **St George’s Church, Cambridge, 7:30pm  
@@ -14,7 +17,7 @@ Schumann Cello Concerto
 Bristol Schools Philharmonic Orchestra, conductor Mark Finch**  
 Dvorak Cello Concerto
 
-## Saturday 25 May
+## Friday 24 May
 
 **Bristol Music Club, 7:30pm  
 Recital with Clare Wilding**  
