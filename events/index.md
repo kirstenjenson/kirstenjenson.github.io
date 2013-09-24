@@ -35,13 +35,26 @@ Ravel Piano Trio
 John Thwaites, Charis Jenson, Kirsten Jenson**  
 Programme to include the Brahms Piano Trio no.2, op.87
 
-## August, date TBC
+## 22 August
 
-**Harpenden Music Festival  
-Trio Ametis**  
-Ravel and Beethoven
+**Rosengracht Festival Amsterdam, 20:30  
+Ragazze Kwartet**  
+Dvorak Op.106 Quartet in G major
 
-## September, date TBC
+## 23 August
 
-**Italy  
-Trio Ametis**
+**Rosengracht Festival Amsterdam, 11:00, 13:00  
+Ragazze Kwartet**  
+Dvorak Op.106 Quartet in G major, Janacek Quartet No.1 'Kreutzer Sonata' with actor Porgy Franssen
+
+## 31 August
+
+**Concertgebouw, Amsterdam, 14:00  
+Ragazze Kwartet**  
+Janacek Quartet No.1 'Kreutzer Sonata'
+
+## 27 September
+
+**Craigdarroch house, Scotland  
+With Alex Mcquiston and Jennifer Redmond**  
+Vivaldi Double Cello Concerto in G minor, RV 531, Piazzolla's Libertango, Vivaldi Sonata no.3 in A minor, RV 43, Popper Requiem
