@@ -10,6 +10,6 @@ After winning the Helen Winning Memorial Prize at the summer 2010 Tunbridge Well
 
 Kirsten has performed and taken masterclasses at numerous festivals and courses throughout Europe and America, most recently with Ralph Kirshbaum at the 2013 International Musicians Seminar Prussia Cove, with Steven Isserlis at the 2012 Los Angeles International Piatagorsky Cello Festival, and with Raphael Wallfisch at the 2010 Amsterdam Cello Biennale. Kirsten was selected as a Young Concert Artist for the 2011 Scottish International Cello Festival and has also received masterclasses from Wolfgang Boettcher, Anner Bylsma, Colin Carr, Wen-Sinn Yang and Steven Doane.
 
-Alongside her solo work, Kirsten is a keen chamber musician. She is a member of the Switzerland-based Trio Ametis and plays regularly in a violin/cello duo with her identical twin sister, Charis Jenson.
+Alongside her solo work, Kirsten is a keen chamber musician. She is a member of the Switzerland-based Trio Ametis and works from time to time with the Holland-based Ragazze Kwartet, and the Fontanelli Quartet in London. in a violin/cello duo with her identical twin sister, Charis Jenson.
 
 Kirsten is currently taking private lessons with Melissa Phelps and divides her time between teaching and performing throughout the UK and abroad.
