@@ -62,7 +62,7 @@ Vivaldi Double Cello Concerto in G minor, RV 531, Piazzolla's Libertango, Vivald
 ## 12 October
 
 **Private concert for company Van Beuningen  
-Ellie Fagg, Elliott Perks, Michal Cwizewicz, Juke Van Beuningen, Kirsten Jenson**  
+Ellie Fagg, Michal Cwizewicz, Elliott Perks, Juke Van Beuningen, Kirsten Jenson**  
 Programme to include Schubert's String Quintet in C major, D.956
 
 ## 9 January 2014
