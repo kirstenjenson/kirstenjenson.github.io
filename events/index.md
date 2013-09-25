@@ -59,10 +59,10 @@ Janacek Quartet No.1 'Kreutzer Sonata'
 With Alex Mcquiston and Jennifer Redmond**  
 Vivaldi Double Cello Concerto in G minor, RV 531, Piazzolla's Libertango, Vivaldi Sonata no.3 in A minor, RV 43, Popper Requiem
 
-# 12 October
+## 12 October
 
 **Private concert for company Van Beuningen  
-Ellie Fag, Elliott Perks, Michal Cwizewicz, Juke Van Beuningen, Kirsten Jenson**  
+Ellie Fagg, Elliott Perks, Michal Cwizewicz, Juke Van Beuningen, Kirsten Jenson**  
 Programme to include Schubert's String Quintet in C major, D.956
 
 ## 9 January 2014
