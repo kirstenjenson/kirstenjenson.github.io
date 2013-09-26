@@ -65,6 +65,12 @@ Vivaldi Double Cello Concerto in G minor, RV 531, Piazzolla's Libertango, Vivald
 Ellie Fagg, Michal Cwizewicz, Elliott Perks, Juke Van Beuningen, Kirsten Jenson**  
 Programme to include Schubert's String Quintet in C major, D.956
 
+## 31 October - 10 November
+
+**Series of concerts in Holland with the 
+Ragazze Kwartet**  
+Programmes to include Tan Dun, Dvorak, Janacek, Schulhoff and other contemporary works
+
 ## 9 January 2014
 
 **Purcell Room, Southbank Centre London  
