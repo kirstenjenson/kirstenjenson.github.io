@@ -62,8 +62,7 @@ Vivaldi Double Cello Concerto in G minor, RV 531, Piazzolla's Libertango, Vivald
 ## 12 October
 
 **Launch Concert for Van Beuningen, Morgan Hall, Fairford
-
-Ellie Fagg, Michal Cwizewicz, Elliott Perks, Juke Van Beuningen, Kirsten Jenson**  
+With Ellie Fagg, Michal Cwizewicz, Elliott Perks, Juke Van Beuningen, Kirsten Jenson**  
 Programme to include Schubert's String Quintet in C major, D.956
 
 ## 31 October - 10 November
