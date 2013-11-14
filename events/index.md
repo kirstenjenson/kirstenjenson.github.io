@@ -71,15 +71,42 @@ Programme to include Schubert's String Quintet in C major, D.956
 Ragazze Kwartet**  
 Programmes to include Tan Dun, Dvorak, Janacek, Schulhoff and other contemporary works
 
+## 27 November
+
+**Lunchtime concert at the RCM with the Milgram Trio**  
+Mozart Piano Trio in B-flat major, K502
+
 ## 9 January 2014
 
 **Purcell Room, Southbank Centre London  
 Fontanelli Quartet**  
 Programme to include Giles Swaynes's String Quartet no.4
 
-## March, date TBC
+## 20 - 26 January
+
+**Series of concerts in Holland with the 
+Ragazze Kwartet**  
+
+## 10 February
+
+**Milgram Trio concert in London, venue TBC**  
+Programme to include Mozart Piano Trio in B-flat major K502, and Mendelssohn's Piano Trio No. 1 in D minor, Op. 49
+
+## 2 March
+
+**Belgium, venue TBC  
+Fontanelli Quartet**  
+Programme to include Giles Swaynes's String Quartet no.4
+
+## 4 March
+
+**Bristol Music Club  
+with Clare Wilding and Charis Jenson**  
+Programme TBC
+
+## 27 March
 
 **Cambridge  
 Cambridge Sinfonietta, conductor Peter Britton**  
-Brahms Double Concerto**  
+Brahms Double Concerto with Saski Otto**  
 
