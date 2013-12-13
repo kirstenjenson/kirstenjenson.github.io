@@ -89,6 +89,12 @@ Mozart Piano Trio in B-flat major, K502
 Fontanelli Quartet**  
 Programme to include Giles Swaynes's String Quartet no.4
 
+## 10 January
+
+**Amsterdam  
+Ragazze Kwartet**  
+Programme to include Dvorak's String Quartet op.106
+
 ## 20 - 26 January
 
 **Series of concerts in Holland with the 
