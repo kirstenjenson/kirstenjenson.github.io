@@ -94,9 +94,15 @@ Programme to include Giles Swaynes's String Quartet no.4
 **Series of concerts in Holland with the 
 Ragazze Kwartet**  
 
+## 9 february
+
+**St Mary's Parish Church, Battersea  
+Milgram Trio**  
+Beethoven Piano Trio op.1, no.1 and Mendelssohn's Piano Trio No. 1 in D minor, Op. 49
+
 ## 10 February
 
-**Milgram Trio concert in London, venue TBC**  
+**Milgram Trio, venue TBC**  
 Programme to include Mozart Piano Trio in B-flat major K502, and Mendelssohn's Piano Trio No. 1 in D minor, Op. 49
 
 ## 2 March
@@ -116,4 +122,10 @@ Programme TBC
 **Cambridge  
 Cambridge Sinfonietta, conductor Peter Britton**  
 Brahms Double Concerto with Saski Otto**  
+
+## 23 April
+
+**venue TBC  
+Piano/cello duo and solo concert with Grace Mo**  
+Programme to include Sally Beamish's Bridging the Day
 
