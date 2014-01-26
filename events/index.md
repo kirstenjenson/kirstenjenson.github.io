@@ -135,3 +135,14 @@ Brahms Double Concerto with Saski Otto**
 Piano/cello duo and solo concert with Grace Mo**  
 Programme to include Sally Beamish's Bridging the Day
 
+## 13 September
+
+**Bushey Parish Church, Bushey, 12pm  
+Milgram Trio**  
+Beethoven Piano Trio op.1, no.1 and Mendelssohn's Piano Trio No. 1 in D minor, Op. 49
+
+## 23 November
+
+**Easterbrook Hall, Dumfries, 7:30pm  
+Solway Sinfonia, conductor Geoff Keating**  
+Dvorak Cello Concerto**
