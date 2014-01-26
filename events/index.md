@@ -100,6 +100,11 @@ Programme to include Dvorak's String Quartet op.106
 **Series of concerts in Holland with the 
 Ragazze Kwartet**  
 
+## 6 February
+
+**Lunchtime concert at the RCM with the Milgram Trio**  
+Beethoven Piano Trio op.1, no.1
+
 ## 9 february
 
 **St Mary's Parish Church, Battersea  
