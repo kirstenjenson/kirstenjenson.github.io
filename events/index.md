@@ -132,7 +132,7 @@ Programme TBC
 
 **Cambridge  
 Cambridge Sinfonietta, conductor Peter Britton**  
-Brahms Double Concerto with Saski Otto**  
+Brahms Double Concerto with Saski Otto
 
 ## 23 April
 
@@ -150,4 +150,4 @@ Beethoven Piano Trio op.1, no.1 and Mendelssohn's Piano Trio No. 1 in D minor, O
 
 **Easterbrook Hall, Dumfries, 7:30pm  
 Solway Sinfonia, conductor Geoff Keating**  
-Dvorak Cello Concerto**
+Dvorak Cello Concerto
