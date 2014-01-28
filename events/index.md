@@ -97,7 +97,7 @@ Programme to include Dvorak's String Quartet op.106
 
 ## 20 - 26 January
 
-**Series of concerts in Holland with the 
+**Series of concerts in Holland for the Storioni Festival with the 
 Ragazze Kwartet**  
 
 ## 6 February
