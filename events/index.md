@@ -98,7 +98,8 @@ Programme to include Dvorak's String Quartet op.106
 ## 20 - 26 January
 
 **Series of concerts in Holland for the Storioni Festival with the 
-Ragazze Kwartet**  
+Ragazze Kwartet** 
+Programme to include Terry Riley, Puccini and Barber's Dover Beach with Henk Neven
 
 ## 6 February
 
