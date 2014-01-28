@@ -113,7 +113,7 @@ Beethoven Piano Trio op.1, no.1 and Mendelssohn's Piano Trio No. 1 in D minor, O
 
 ## 10 February
 
-**Milgram Trio, venue TBC**  
+**Milgram Trio, St Peter's Church, 90 Kensington Park Road W11 2PN**  
 Programme to include Mozart Piano Trio in B-flat major K502, and Mendelssohn's Piano Trio No. 1 in D minor, Op. 49
 
 ## 2 March
