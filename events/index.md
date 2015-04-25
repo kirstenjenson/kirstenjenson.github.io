@@ -2,7 +2,6 @@
 published: true
 layout: default
 title: Events
-
 ---
 
 ### 2013:
@@ -153,3 +152,13 @@ Beethoven Piano Trio op.1, no.1 and Mendelssohn's Piano Trio No. 1 in D minor, O
 **Easterbrook Hall, Dumfries, 7:30pm  
 Solway Sinfonia, conductor Geoff Keating**  
 Dvorak Cello Concerto
+
+## FOR ALL UPCOMING RAGAZZE QUARTET EVENTS, PLEASE SEE www.ragazzekwartet.nl
+
+### 2015:
+
+## 14 November
+
+**St George's Brandon Hill, Bristol, 7:30pm  
+Bristol Metropolitan Orchestra, conductor William Goodchild**  
+Brahms Double Concerto with Charis Jenson
