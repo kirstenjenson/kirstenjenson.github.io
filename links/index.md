@@ -5,7 +5,6 @@ title: Links
 ## Chamber
 [Ragazze Quartet](http://www.ragazzekwartet.nl)
 
-[Fontanelli Quartet](http://fontanellistringquartet.com/)
 
 ## Acknowledgements
 Photos by: [Vasiliy Danilin](http://www.vasiliydanilin.com)
