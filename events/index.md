@@ -169,3 +169,11 @@ Seltz - String Quartet, Talbot - String Quartet no.2, Muhly - Diactritical Marks
 **St George's Brandon Hill, Bristol, 7:30pm  
 Bristol Metropolitan Orchestra, conductor William Goodchild**  
 Brahms Double Concerto with Charis Jenson
+
+## 4 December
+
+**Hackney Attic, London, 19:30 
+Project Instrumental**  
+Pärt - Passacaglia
+Fokkens - New Commission - Neo Concerto Grosso for String Trio & String Orchestra
+Shostakovich - Chamber Symphony Op.118a
