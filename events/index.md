@@ -176,7 +176,7 @@ Brahms Double Concerto with Charis Jenson
 Project Instrumental**  
 Pärt - Passacaglia
 Fokkens - New Commission - Neo Concerto Grosso for String Trio & String Orchestra
-Shostakovich - Chamber Symphony Op.118a
+Shostakovich - Chamber Symphony Op.118a,
 Tpongle - Passacaglia - live electronic set
 
 ## 8 December
@@ -185,5 +185,5 @@ Tpongle - Passacaglia - live electronic set
 Project Instrumental**  
 Pärt - Passacaglia
 Fokkens - New Commission - Neo Concerto Grosso for String Trio & String Orchestra
-Shostakovich - Chamber Symphony Op.118a
+Shostakovich - Chamber Symphony Op.118a,
 Tpongle - Passacaglia - live electronic set
