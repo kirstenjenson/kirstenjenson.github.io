@@ -4,6 +4,7 @@ layout: default
 title: Events
 ---
 
+
 ### 2013:
 
 
@@ -156,6 +157,12 @@ Dvorak Cello Concerto
 ## FOR ALL UPCOMING RAGAZZE QUARTET EVENTS, PLEASE SEE www.ragazzekwartet.nl
 
 ### 2015:
+
+## 9 November
+
+**Southampton University, 13:00 
+Project Instrumental**  
+Seltz - String Quartet, Talbot - String Quartet no.2, Muhly - Diactritical Marks
 
 ## 14 November
 
