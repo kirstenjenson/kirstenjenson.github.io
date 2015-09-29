@@ -161,7 +161,7 @@ Dvorak Cello Concerto
 ## 9 November
 
 **Southampton University, 13:00 
-Project Instrumental**  
+Project Instrumental Quartet**  
 Seltz - String Quartet, Talbot - String Quartet no.2, Muhly - Diactritical Marks
 
 ## 14 November
@@ -177,3 +177,13 @@ Project Instrumental**
 Pärt - Passacaglia
 Fokkens - New Commission - Neo Concerto Grosso for String Trio & String Orchestra
 Shostakovich - Chamber Symphony Op.118a
+Tpongle - Passacaglia - live electronic set
+
+## 8 December
+
+**Cardiff University concert hall, 19:00 
+Project Instrumental**  
+Pärt - Passacaglia
+Fokkens - New Commission - Neo Concerto Grosso for String Trio & String Orchestra
+Shostakovich - Chamber Symphony Op.118a
+Tpongle - Passacaglia - live electronic set
