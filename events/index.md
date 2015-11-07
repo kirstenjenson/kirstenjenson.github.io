@@ -187,3 +187,37 @@ Pärt - Passacaglia
 Fokkens - New Commission - Neo Concerto Grosso for String Trio & String Orchestra
 Shostakovich - Chamber Symphony Op.118a,
 Tpongle - Passacaglia - live electronic set
+
+
+### 2016:
+
+
+## 15 January
+
+**Concertgebouw, Amsterdam, 14:00  
+Ragazze Kwartet**  
+Haute Couture Programme
+
+## 27 January
+
+**Dutch Embassy, London  
+Ragazze Kwartet**  
+Haute Couture Programme
+
+## 26 February
+
+**Southbank, London  
+Project Instrumental, Soton Quartet**  
+Seltz - String Quartet, Talbot - String Quartet no.2, Muhly - Diactritical Marks
+
+## 14 June
+
+**Bristol Music Club  
+with Clare Wilding and Charis Jenson**  
+Programme TBC
+
+## 19 June
+
+**Sommersprossen Festival, Rottweil, Germany  
+with Johannes Goritzki**  
+Brahms sextets
