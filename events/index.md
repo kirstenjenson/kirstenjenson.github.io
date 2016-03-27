@@ -22,8 +22,8 @@ Programme TBC
 
 ## 9 June
 
-**Dulcinea Quartet, St Mary Aldermary, London**  
-Beethoven and Bartok
+**Dulcinea Quartet, St Mary Aldermary, London, 18:00**  
+Beethoven op.18 no.6 and Bartok Quartet no.1
 
 ## 28 April
 
@@ -33,8 +33,8 @@ Schubert Quartettsatz D703, Bach Art of the Fugue, Strauss Metamorphosen, and wo
 
 ## 1 April
 
-**venue tbc, London  
-Project Instrumental, Soton Quartet**  
+**National Portraite Gallery, London  
+Project Instrumental, Soton Quartet, 18:30**  
 Seltz - String Quartet, Talbot - String Quartet no.2, Muhly - Diactritical Marks
 
 ## 9 March
