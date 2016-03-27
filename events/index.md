@@ -20,6 +20,11 @@ Brahms sextets
 with Clare Wilding and Charis Jenson**  
 Programme TBC
 
+## 9 June
+
+**Dulcinea Quartet, St Mary Aldermary, London**  
+Beethoven and Bartok
+
 ## 28 April
 
 **St Leonards, Shoreditch London  
