@@ -5,8 +5,42 @@ title: Events
 ---
 
 
+### 2017:
+
+
+## 13 February
+
+**Piano trios in Frankfurt, Germany**  
+programme and venue TBC
+
+
 ### 2016:
 
+
+## 5 - 14 November
+
+**Dulcinea Quartet in Japan, with Trinity Laban**  
+programme TBC
+
+## 1 - 15 September
+
+**Dulinea Quartet tour to Japan**  
+For further information please go to www.dulcineaquartet.com
+
+## 14 August
+
+**venue TBC, Dumfries and Galloway**  
+music by Cassado
+
+## 12 August
+
+**Buccleuch & Queensberry Arms, Thornhill, 19:30**  
+Chopin, Ireland and Janacek
+
+## 4 August
+
+**Project Instrumental, Crossrail Place Roof Garden, London, 18:30 - 19:30**  
+Music by Toovey, Tabakova, Bescoby, Dessner, Talbot, Piazzola
 
 ## 19 June
 
