@@ -8,19 +8,39 @@ title: Events
 ### 2017:
 
 
-## 13 February
+## 26 November
+
+**Easterbrook Hall, Dumfries, time TBC  
+Solway Sinfonia Birthday Celebration, conductor Geoff Keating**  
+Tchaikovsky Rococo Variations
+
+## 9 June
+
+**Dulcinea Quartet, venue TBC, London, 13:05**  
+Programme TBC
+
+## 27 March
+
+**Dulcinea Quartet, St James Piccadilly, London, time TBC**  
+Barber, Ives, Putz
+
+## 12 February
 
 **Piano trios in Frankfurt, Germany**  
 programme and venue TBC
 
+## 12 January
+
+**Dulcinea Quartet, venue TBC, London, 13:05**  
+Barber, Ives, Putz
 
 ### 2016:
 
 
-## 5 - 14 November
+## 13 November
 
-**Dulcinea Quartet in Japan, with Trinity Laban**  
-programme TBC
+**Dulcinea Quartet in Japan, collab with Geidai**  
+Mendelssohn Octet, Bartok
 
 ## 1 - 15 September
 
@@ -29,7 +49,7 @@ For further information please go to www.dulcineaquartet.com
 
 ## 14 August
 
-**venue TBC, Dumfries and Galloway**  
+**Buccleuch & Queensberry Arms, Thornhill, Dumfries and Galloway**  
 music by Cassado
 
 ## 12 August
@@ -52,7 +72,7 @@ Brahms sextets
 
 **Bristol Music Club  
 with Clare Wilding and Charis Jenson**  
-Programme TBC
+Mozart, Beethoven, Chopin
 
 ## 9 June
 
