@@ -43,6 +43,16 @@ Barber, Ives, Putz
 **Dulcinea Quartet in Japan, collab with Geidai**  
 Mendelssohn Octet, Bartok
 
+## 5 October
+
+**Dulcinea Quartet and ANIMA, St Alfege Church, Greenwich London, 19:30-21:00**  
+To include music by Chris Roe, award winning composer and director of the project
+
+## 4 October
+
+**Dulcinea Quartet, The Old Royal Naval College, Greenwich London, 13:05**  
+Beethoven Op.18 no.6 and Bartok String Quartet no.1
+
 ## 21 September
 
 **Batikian Quartet, Ealing Town Hall, London, 13:05**  
