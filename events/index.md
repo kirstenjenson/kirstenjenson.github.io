@@ -34,6 +34,7 @@ programme and venue TBC
 **Dulcinea Quartet, venue TBC, London, 13:05**  
 Barber, Ives, Putz
 
+
 ### 2016:
 
 
@@ -41,6 +42,11 @@ Barber, Ives, Putz
 
 **Dulcinea Quartet in Japan, collab with Geidai**  
 Mendelssohn Octet, Bartok
+
+## 21 September
+
+**Batikian Quartet, Ealing Town Hall, London, 13:05**  
+Armenian Music - Komitas/Aslamazian
 
 ## 1 - 15 September
 
