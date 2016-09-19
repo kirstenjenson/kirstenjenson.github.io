@@ -55,7 +55,7 @@ Beethoven Op.18 no.6 and Bartok String Quartet no.1
 
 ## 21 September
 
-**Batikian Quartet, Ealing Town Hall, London, 13:05**  
+**Batikian Quartet, Ealing Town Hall, London, 19:30**  
 Armenian Music - Komitas/Aslamazian
 
 ## 1 - 15 September
