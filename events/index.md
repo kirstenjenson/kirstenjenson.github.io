@@ -14,6 +14,12 @@ title: Events
 Solway Sinfonia Birthday Celebration, conductor Geoff Keating**  
 Tchaikovsky Rococo Variations
 
+## 8 July
+
+**venue TBC    
+Cambridge Sinfonietta, conductor Peter Britton**
+Tchaikovsky Rococo Variations
+
 ## 9 June
 
 **Dulcinea Quartet, venue TBC, London, 13:05**  
