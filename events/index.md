@@ -14,6 +14,18 @@ title: Events
 Solway Sinfonia Birthday Celebration, conductor Geoff Keating**  
 Tchaikovsky Rococo Variations
 
+## 19-22 October
+
+**Dumfries and Galloway  
+Dulcinea Quartet for Absolute Classics**  
+programmes TBC
+
+## 14 July
+
+**Sommersprossen Festival, Rottweil, Germany  
+with Hariolf Schlichtig, Matthias Lingenfelder, Johannes Goritzki, Charis Jenson, Hiyoli Togawa **  
+Schoenberg Verklarte Nacht, Mendelssohn Octet
+
 ## 8 July
 
 **venue TBC    
@@ -28,21 +40,30 @@ Programme TBC
 ## 27 March
 
 **Dulcinea Quartet, St James Piccadilly, London, time TBC**  
-Barber, Ives, Putz
+Barber, Puts
 
-## 12 February
+## 13 February
 
 **Piano trios in Frankfurt, Germany**  
-programme and venue TBC
+Mozart C major, Dvorak Dumky, venue TBC
+
+## 26 January
+
+**Recital with Flora Tzanetakis (piano) for Inspire Management, Woodsville Hall Gravesend, 13:00**  
+programme TBC
 
 ## 12 January
 
 **Dulcinea Quartet, venue TBC, London, 13:05**  
-Barber, Ives, Putz
+Barber, Puts
 
 
 ### 2016:
 
+## 17 November
+
+**Project Instrumental, Wakefield Prison**  
+programme to include Dessner, Talbot, Piazzola
 
 ## 13 November
 
