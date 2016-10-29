@@ -49,7 +49,7 @@ Mozart C major, Dvorak Dumky, venue TBC
 
 ## 26 January
 
-**Recital with Flora Tzanetakis (piano) for Inspire Management, Woodsville Hall Gravesend, 13:00**  
+**Recital with piano for Inspire Management, Woodsville Hall Gravesend, 13:00**  
 programme TBC
 
 ## 12 January
