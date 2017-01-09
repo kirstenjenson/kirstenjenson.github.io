@@ -49,13 +49,13 @@ Mozart C major, Dvorak Dumky, venue TBC
 
 ## 26 January
 
-**Recital with piano for Inspire Management, Woodsville Hall Gravesend, 13:00**  
-programme TBC
+**Recital with Shu-Wei Tseng for Inspire Management, Woodsville Hall Gravesend, 13:00**  
+Beethoven Sonata no.4 in C, Faure, Rachmaninov, Ravel, Cassado, Hindemith
 
 ## 12 January
 
-**Dulcinea Quartet, venue TBC, London, 13:05**  
-Barber, Puts
+**Dulcinea Quartet, St Alfege Church, Greenwich London, 13:05**  
+Barber, Glass, Puts
 
 
 ### 2016:
