@@ -14,6 +14,11 @@ title: Events
 Solway Sinfonia Birthday Celebration, conductor Geoff Keating**  
 Tchaikovsky Rococo Variations
 
+## 13 November
+
+**Dulcinea Quartet, Bath, venue TBC**  
+programmes TBC
+
 ## 19-22 October
 
 **Dumfries and Galloway  
@@ -40,9 +45,19 @@ Programme TBC
 ## 27 March
 
 **Dulcinea Quartet, St James Piccadilly, London, time TBC**  
-Barber, Puts
+Mendelssohn, Judith Weir
+
+## 14 February
+
+**Gala Showcase for Absolute Classics, 6 - 8 pm, Philimore Road (London)**  
+ programme TBC
 
 ## 13 February
+
+**Gala Showcase for Absolute Classics, 6 - 8 pm, Bluthner Show Room (Baker Street, London)**  
+ programme TBC
+
+## 12 February
 
 **Piano trios in Frankfurt, Germany**  
 Mozart C major, Dvorak Dumky, venue TBC
