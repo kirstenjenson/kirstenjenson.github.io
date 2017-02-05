@@ -14,7 +14,7 @@ title: Events
 Solway Sinfonia Birthday Celebration, conductor Geoff Keating**  
 Tchaikovsky Rococo Variations
 
-## 13 November
+## 11 November
 
 **Dulcinea Quartet, Bath, venue TBC**  
 programmes TBC
