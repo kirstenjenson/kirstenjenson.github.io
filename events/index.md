@@ -42,9 +42,23 @@ Tchaikovsky Rococo Variations
 **Dulcinea Quartet, venue TBC, London, 13:05**  
 Programme TBC
 
+## 2 May
+
+**Dulcinea Quartet, Trinity Laban Patron Scheme Launch, St James Palace, 11am**  
+Danish Quartet - Woodworks
+
+## 22 April
+
+**Villa Lobos Bachianas Brasilieras 1 & 5, St John of Jerusalem Church E9 7EY, 7pm**  
+
+## 1 April
+
+**Project Instrumental, Kings Place for Cello Unwrapped, 7:30pm**  
+Sigur Ros, Dessner, Haushka
+
 ## 27 March
 
-**Dulcinea Quartet, St James Piccadilly, London, time TBC**  
+**Dulcinea Quartet, St James Piccadilly, London, 13:10**  
 Mendelssohn, Judith Weir
 
 ## 14 February
