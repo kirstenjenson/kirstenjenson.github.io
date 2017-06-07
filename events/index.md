@@ -28,19 +28,19 @@ programmes TBC
 ## 14 July
 
 **Sommersprossen Festival, Rottweil, Germany  
-with Hariolf Schlichtig, Matthias Lingenfelder, Johannes Goritzki, Charis Jenson, Hiyoli Togawa **  
+with Ulrich Groner, Lisa Schumann, Hariolf Schlichtig, Matthias Lingenfelder, Johannes Goritzki, Charis Jenson, Hiyoli Togawa **  
 Schoenberg Verklarte Nacht, Mendelssohn Octet
 
-## 8 July
+## 1 July
 
-**venue TBC    
+**St Paul's Church, Hills Road, Cambridge, 7:30pm   
 Cambridge Sinfonietta, conductor Peter Britton**
-Tchaikovsky Rococo Variations
+Tchaikovsky Rococo Variations (Fitzenhagen Version)
 
 ## 9 June
 
-**Dulcinea Quartet, venue TBC, London, 13:05**  
-Programme TBC
+**Dulcinea Quartet, Old Royal Naval College, London, 13:05**  
+Maconchy, Weir, Mendelssohn
 
 ## 2 May
 
@@ -64,12 +64,12 @@ Mendelssohn, Judith Weir
 ## 14 February
 
 **Gala Showcase for Absolute Classics, 6 - 8 pm, Philimore Road (London)**  
- programme TBC
+ Janacek, Cassado, Rachmaninov
 
 ## 13 February
 
 **Gala Showcase for Absolute Classics, 6 - 8 pm, Bluthner Show Room (Baker Street, London)**  
- programme TBC
+ Janacek, Cassado
 
 ## 12 February
 
