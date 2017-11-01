@@ -230,7 +230,7 @@ Seltz - String Quartet, Talbot - String Quartet no.2, Muhly - Diactritical Marks
 ## 23 November
 
 **Easterbrook Hall, Dumfries, 7:30pm  
-Solway Sinfonia, conductor Geoff Keating**  
+**  
 Dvorak Cello Concerto
 
 ## 13 September
