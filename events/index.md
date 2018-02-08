@@ -3,7 +3,19 @@ published: true
 layout: default
 title: Events
 ---
+### 2018:
 
+
+## 27 May
+
+**Mainz, Germany Venue TBC, 7:30pm**  
+Programme to include Shostakovich Piano Trio no.2, Bloch Nocturnes, Bloch Nigun and Mendelssohn Song Without Words for Cello and Piano.
+
+## 16 February
+
+**St Giles Church, Castle Hill, Cambridge, 7:30pm  
+Dulcinea Quartet with the K. 239 CHAMBER ORCHESTRA**  
+Elgar Introduction and Allegro, solo parts
 
 ### 2017:
 
