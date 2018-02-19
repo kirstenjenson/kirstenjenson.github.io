@@ -5,15 +5,20 @@ title: Events
 ---
 ### 2018:
 
+## 27 May
+
+**New Synagogue Mainz, Germany, with violinist Charis Jenson and pianist Uwe Zuetzheim, time TBC**  
+Programme to include music by Shostakovich, Bloch, Gal and Mendelssohn. With dancer Gili Goverman
+
+## 16 - 18 March
+
+**Showcase concerts for Absolute Classics, Dumfries and Galloway, venues and times TBC**  
+ Cassado Dance of the Green Devil, Rachmaninov Sonata, Mendelssohn Song Without Words opus 109, Mark Summers Julie-o
+
 ## 9 March
 
 **Project Instrumental, Stephen Montague 75th Birthday Concert, St John's Smith Square, 8pm**  
 European premiere of a concerto for inside piano and strings
-
-## 27 May
-
-**New Synagogue Mainz, with violinist Charis Jenson and pianist Uwe Zuetzheim, time TBC**  
-Programme to include music by Shostakovich, Bloch, Gal and Mendelssohn. With dancer Gili Goverman
 
 ## 16 February
 
