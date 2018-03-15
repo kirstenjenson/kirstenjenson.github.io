@@ -5,6 +5,12 @@ title: Events
 ---
 ### 2018:
 
+## 22 September
+
+**Dumfries and Galloway, venue and time TBC  
+Charity Concert in aid of Help Refugees UK**  
+Vivaldi Double Cello Concerto with Alex Mcquiston
+
 ## 27 May
 
 **New Synagogue Mainz, Germany, with violinist Charis Jenson and pianist Uwe Zuetzheim, time TBC**  
@@ -13,7 +19,7 @@ Programme to include music by Shostakovich, Bloch, Gal and Mendelssohn. With dan
 ## 16 - 18 March
 
 **Showcase concerts for Absolute Classics, Dumfries and Galloway, venues and times TBC**  
- Cassado Dance of the Green Devil, Rachmaninov Sonata, Mendelssohn Song Without Words opus 109, Mark Summers Julie-o
+ Cassado, Rachmaninov, Mendelssohn, Mark Summers
 
 ## 9 March
 
