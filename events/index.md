@@ -5,6 +5,41 @@ title: Events
 ---
 ### 2018:
 
+## 10 November
+
+**Allegri Quartet, Vinehall School Concert Series, 7:30pm**  
+Haydn, Chausson
+
+## 4 November
+
+**Allegri Quartet, The Orange Tree Theatre, Richmond, 11:00am**  
+Haydn Op.20 No.5, Haydn Op.54 No.2, Haydn Op.71 No.2
+
+## 3 November
+
+**Allegri Quartet, Rochester, Restoration House, 7:30pm**  
+Haydn Op.20 No.5, Haydn Op.54 No.2, Haydn Op.71 No.2
+
+## 2 November
+
+**Allegri Quartet, Pontio, Bangor, 1:00pm**  
+Haydn, Mendelssohn
+
+## 1 November
+
+**Allegri Quartet, Pontio, Bangor, 7:30pm**  
+Haydn, Debussy, Dvorak
+
+## 12-14 October
+
+**concerts with United Strings Of Europe, Montpelier**  
+Schoenberg, Faure, Grieg, Saint-Saens
+
+## 7 October
+
+**Wandsworth Society Piano Trio Concert, with violinist Charis Jenson and pianist Christina McMaster, 7:30pm**  
+Gal, Mozart, Schumann
+
 ## 22 September
 
 **Dumfries and Galloway, venue and time TBC  
@@ -18,7 +53,7 @@ Programme to include music by Shostakovich, Bloch, Gal and Mendelssohn. With dan
 
 ## 16 - 18 March
 
-**Showcase concerts for Absolute Classics, Dumfries and Galloway, venues and times TBC**  
+**Showcase concerts for Absolute Classics, Dumfries and Galloway**  
  Cassado, Rachmaninov, Mendelssohn, Mark Summers
 
 ## 9 March
