@@ -5,6 +5,11 @@ title: Events
 ---
 ### 2018:
 
+## 16 November
+
+**Lie Down and Listen Concert, St Giles, Barbican, London 7:30pm**  
+with violinist Lana Trotovsek and pianist Christina McMaster. Programme to include Debussy's Beau Soir (cello and piano) and  Louange D'eterntie from Messiaen's Quartet for the End of Time
+
 ## 10 November
 
 **Allegri Quartet, Vinehall School Concert Series, 7:30pm**  
