@@ -13,7 +13,7 @@ with violinist Lana Trotovsek and pianist Christina McMaster. Programme to inclu
 ## 10 November
 
 **Allegri Quartet, Vinehall School Concert Series, 7:30pm**  
-Haydn, Chausson
+Haydn Op.71 no.2 and Chausson's Concerto for Violin, Piano and String Quartet (with Callum Smart and Martin Roscoe)
 
 ## 4 November
 
