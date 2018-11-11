@@ -5,6 +5,11 @@ title: Events
 ---
 ### 2018:
 
+## 23 November
+
+**Allegri Quartet, Stapleford Granary, Cambridge, 7:30pm**  
+Haydn Op.71 No.2, Debussy, Mendelssohn F minor
+
 ## 16 November
 
 **Lie Down and Listen Concert, St Giles, Barbican, London 7:30pm**  
