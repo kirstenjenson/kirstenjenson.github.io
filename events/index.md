@@ -5,10 +5,15 @@ title: Events
 ---
 ### 2018:
 
+## 2 December
+
+**Allegri Quartet, King's Place, London, 6:30pm**  
+Haydn, Mendelssohn, Elgar (Piano quintet in A minor, with Martin Roscoe)
+
 ## 23 November
 
 **Allegri Quartet, Stapleford Granary, Cambridge, 7:30pm**  
-Haydn Op.71 No.2, Debussy, Mendelssohn F minor
+Britten Quartet No.1, Debussy, Wolf Italian Serenade
 
 ## 16 November
 
