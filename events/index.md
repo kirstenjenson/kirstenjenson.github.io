@@ -3,7 +3,7 @@ published: true
 layout: default
 title: Events
 ---
-### 2019:
+### 2020:
 
 ## 27 January
 
@@ -17,6 +17,11 @@ Programme to include music by Bloch, Gal and Mendelssohn. With singer Gili Gover
 
 **Quartet, West Dean, time TBC**  
 Ravel String Quartet
+
+## 5 December
+
+**Dulcinea Quartet, London, venue and time TBC**  
+Programme to include Elgar and arrangements by the Danish Quartet
 
 ## 17 November
 
@@ -33,6 +38,15 @@ Schoenberg Verklarte Nacht, Boccherini, Vivaldi
 **United Strings of Europe, Enchanted Night,St Cyprian's Church NW1 6AX, London, 7:30pm**  
 Schoenberg Verklarte Nacht, Boccherini, Vivaldi
 
+## 24 August
+
+**Dulcinea Quartet, Berwick Upon Tweed, Berwick Music Series, Watchtower Gallery, 1pm**  
+Mozart, Shubert, Barber
+
+## 20 August
+
+**Procorda Staff Concert**  
+Shostakovich Piano Quintet. With Rafael Todes, Simon Blendis, Robert Smisson, Stephen Gutman.
 
 ### 2018:
 
