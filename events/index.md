@@ -3,6 +3,37 @@ published: true
 layout: default
 title: Events
 ---
+### 2019:
+
+## 27 January
+
+**Mainz, Germany, with violinist Charis Jenson and pianist Uwe Zuetzheim, time and venue TBC**  
+Programme to include music by Bloch, Gal and Mendelssohn. With singer Gili Goverman
+
+
+### 2019:
+
+## 15 December
+
+**Quartet, West Dean, time TBC**  
+Ravel String Quartet
+
+## 17 November
+
+**Jenny Macullum and Kirsten Jenson, viola and cello duo recital, venue tbc, London, 7:30pm**  
+Rebecca Clarke, Danzi, Beethoven
+
+## 5 November
+
+**United Strings of Europe, BBC Radio 3 In Tune, time TBC**  
+Schoenberg Verklarte Nacht, Boccherini, Vivaldi
+
+## 7 November
+
+**United Strings of Europe, Enchanted Night,St Cyprian's Church NW1 6AX, London, 7:30pm**  
+Schoenberg Verklarte Nacht, Boccherini, Vivaldi
+
+
 ### 2018:
 
 ## 2 December
